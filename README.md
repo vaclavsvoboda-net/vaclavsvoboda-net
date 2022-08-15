@@ -5,4 +5,4 @@
 
 - 🌱 I’m currently learning all the news.
 - 💞️ I’m looking to collaborate on everything interesting
-- 📫 How to reach me ...it is not difficult
+- 📫 How to reach me ...it is not difficult, you can try vaclavsvoboda.net@gmail.com
